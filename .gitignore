@@ -3,13 +3,9 @@ public
 resources
 .idea
 content/.obsidian
-content/000 Templates
-content/001 Workshop
-content/002 Showroom/001 Drafts
+content/000 Templates/
+content/001 Workshop/
+content/002 Showroom/001 Drafts/
 assets/indices/linkIndex.json
 assets/indices/contentIndex.json
 linkmap
-content/001 Workshop/001 Daily/🗓 2022-06-20.md
-*.md
-*.md
-content/000 Templates/🏗 Article.md
