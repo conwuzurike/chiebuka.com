@@ -1,0 +1,76 @@
+---
+title: Villain Origin Story
+date: 2022-08-22
+tags: Reflection
+---
+
+**2022-08-22**
+- My favorite characters are villains… 
+- This is my first blog post on my website. I want this first post to be a stream of consciousness saying whatever is on my mind. 
+- So let’s just get started.
+- For a long time I’ve always been very observant. My mom even said growing up all I did was eat, poop, sleep, and just watch what’s going on. 
+- Well I still eat, poop, and sleep but my observation skills have greatly increased.
+- Like there’s plenty I’m not good at but I’ve found I’m really good at pattern recognition, understanding/creating concepts, and logically breaking things down often to an actionable level.
+- One could say this 3 step act of observing, processing, and strategizing was a superpower… 🤔 *The intro making sense now? Well relax cause [“I think we ain’t don’t yet”.](https://youtu.be/0u7hDIy1jFA)* 
+- Well I’ll say it’s one aspect of my superpower. 
+- So the first which I just described is my “figure-out ability”, the second would be my “positive-people energy”.
+- I describe it as an energy because it often just works passively without me doing anything.
+- The amount of strangers that come up to me or the ease and swiftness that people get comfortable with me would amaze you.
+- Although it’s only recently that I’ve been able to fully acknowledge and label it with 100% confidence, this 2 part super power has been in effect for quite some time.
+- I’ve unknowingly used my superpower in many areas of my life but I think the first notable one I can trace back was trying to fit in.
+- With the 2 part power I would often shape shift in different social situations and social groups.
+- The problem with this is despite my ability to morph and assimilate it’s frankly hard to fit in when you’re meant to stand out… *Growing up black and at predominantly white schools  didn’t help either 😅* 
+- See the “positive-people-energy” part of my superpower made me extremely sociable and relatable however the “figure-out-ability” made me extremely cerebral.
+- I just always felt a little different than other people and the latter part of the superpower was huge source of it.
+- Regardless of feeling different I decided to press on and use my superpower to be a hero, or at least that’s what I thought. 
+- Why a hero? Well everyone loves the hero and why wouldn’t they.
+- Heroes typically are highly capable, conscientious, and they always do the right thing.
+- [“With great power comes great responsibility”](https://youtu.be/_5d6rTQcU2U) and hero’s use their powers responsibility.
+- However the problems is responsibilities aren’t fun.
+- There’s actually a [scene from Rugrats](https://youtu.be/-AIPQHHK1o8) where Angelica is explaining to the other kids that she has responsibilities which means she can’t have anymore fun for the rest of her life.
+- Yes there are aspects of responsibilities that are highly rewarding and fulfilling but she ain’t wrong
+- They tend to not be fun.
+- It took some time but I eventually realized all that playing a hero with a [big “S” on my chest](https://en.m.wikipedia.org/wiki/Superman) was not fun.
+- I thought I was being a hero but in reality I was really just a big people pleaser.
+- There’s pros and cons to that, however overtime the cons outweighed the pros.
+- To add to the matter, as I got older, smarter, and wiser my “figure-out-ability” grew in strength which made me feel even more out of place around others.
+- Ultimately I had to accept two facts. One, that I am indeed different and two that I am not a hero.
+- This realization and acceptance wasn’t overnight. I’d actually describe it as a slow decent from heroism.
+- No rather than saying a decent, I  rather would say it was a progression from one end of the spectrum to the other.
+- A progression not from [hero to zero](https://youtu.be/yOL-EJZjmp0) but hero to villain… *Mwhahahaha 🤪*
+- Also to clarify when I say villain, I am not using it with the connotation of an evil doer but rather the denotation of “someone who opposes the hero”.
+- There are a 3 characteristics of traditional villains that I want to emulate… *Spoiler being evil isn’t one of them*
+- First they do what they want… *I think a general rule is if you aren’t doing any harm to others it’s all fair game. Old people pleasing me used to displeasing others was causing harm*
+- Second, they are proactive at achieve their goals… *I feel most hero’s are reactive and save the day after trouble has already started. While most villains yunno get things poppin*
+- Third and most importantly, they use their powers to the fullest *They don’t hold back out of concerns of others. They don’t hold back their punch and powers like most heroes*
+- Marianne Williamson perfectly explained why we should use our powers to the fullest and shouldn’t holdback or minimize ourselves.
+- The passage goes as such, “Our deepest fear is not that we are inadequate. Our deepest fear is that we are powerful beyond measure. It is our light, not our darkness that most frightens us. Your playing small does not serve the world. There is nothing enlightened about shrinking so that other people will not feel insecure around you. As we let our own light shine, we unconsciously give others permission to do the same. As we are liberated from our own fear, our presence automatically liberates others” *[The scene from Coach Carter](https://youtu.be/2_fDhqRk_Ro) is one of my favorite citings of this poem*
+- That’s why if I could describe my villainous reign in one word it would be **fearless**.
+- I know without a shadow doubt that I am powerful beyond measure. You reading this right now are without a drop of uncertainty powerful beyond measure. We all can be if only we stop trying to be what we should be and just allow and accept ourselves for who really are.
+- I actually pray that my “villainous” light shining will not give you the permission to do the same. 
+- What I pray is that my light inspires and enlightens you to realize you don’t need anyone’s permission to do the same.
+- It’s not mine or anyones permission to give or take away.
+- Your first and fundamentals super power you have is the power to accept and allow yourself to be powerful beyond measure.
+- Hopeful you figure that out soon because as Harvey Dent said in the Dark Knight Rises “You either die a hero or live long enough to see yourself become the villian”
+- As I end my long rant on that, I [rest and watch the sunset one a grateful universe](https://youtu.be/fzGBRDpf5GU) and just reflect on this first article.
+- I honestly have to say I didn’t know how this whole thing would start nor how this would finish. 
+- Literally just trusted my gut and wrote what I felt I wanted to say and it all just eventually fell together with some tweaking here and there.
+- Reminds me of a scene from The Incredibles… *My hands down favorite movie* where Helen, Mrs. Incredible aka Elastigirl, was giving advice to Violet, her daughter.
+- She was consoling her for not performing in a situation earlier as well as mentally preparing her for future challenges to come and said [“Things are different now, and doubt is a luxury we can’t afford anymore. You have more power than you realize. Don’t think and don’t worry; when the time comes you’ll know what to”](https://youtu.be/dpkuw3ztPQE)
+- That’s exactly how this stream of consciousness article was written.
+- Just writing and knowing what to write next when the time came.
+- I know writing especially as metaphorical like this isn’t everyone’s cup of tea nor what people would expect of me to enjoy but I honestly had too good of a time.
+- It was fun to throw in all my side comments and jokes in italics.
+- It was refreshing to add all the references and random links that  swirl in my head when usually talking about stuff.
+- It was exciting to take us both on this storytelling journey. 
+- As I refined what was written more and more my excitement grew in anticipation of the landing 🛬 of our final destination.
+- This whole process and journey also just felt right… *Like I was meant to do this*
+- Again I’m not amazing but I am not half bad either. 
+-  [This ain’t my first time at the rodeo](https://youtu.be/OKn00A40uWE) though. I in fact used to be pretty bad at communicating my thoughts in my especially the more intricate or multi layered thoughts.
+- I remember paper after paper, essay after essay that I would decent grades but the overall same comment of criticism.
+- That my writing was unclear or unstructured.
+- However intentionally and unintentionally I slowly honed my communication skills.
+- But things don’t stop here, I plan to continue improving my communications skills.
+- And the best part of that plan is… *[No can stop me](https://youtu.be/B4h__cWaWg8)* that this is just the start.
+- One might even say this is just the origin… *See what I did there 🤭*. 
+- My favorite characters are villains and I’m about to become a super villain. This is my villain origin story.
